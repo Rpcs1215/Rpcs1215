@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Rpcs1215
+- 👋 Hi, I’m @0V3RR1D3
 - 👀 I’m interested in ... cyber sec and ethical hacking
 - 🌱 I’m currently learning ... cyber sec and ethical hacking    
 - 💞️ I’m looking to collaborate on ...anything really red team blue team or in between
-- 📫 How to reach me ... pate.cs1220@gmail.com  
+- 📫 How to reach me ... YOU DON'T
 - 😄 Pronouns: ... fuck/off
 
 
